@@ -5,7 +5,7 @@ Web developer and a software engineer
 -------------------------------------
 
 * 🌍  I'm based in Nabeul, Tunisia
-* ✉️  You can contact me at [rayenhmissi@gmail.com](mailto:rayenhmissi@gmail.com)
+* ✉️  You can contact me at [rayenhmissii@gmail.com](mailto:rayenhmissii@gmail.com)
 
 ### Skills
 
